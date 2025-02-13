@@ -29,3 +29,5 @@
     <p>💥 800 TL çevrimsiz bonus fırsatını kaçırmayın! Yatırım şartı olmadan sunulan bu bonus, Gate of Olympus oyununu oynamanızı sağlayacak harika bir fırsat sunuyor. Oyun oynamaya başlamak için Gate of Olympus oyunu oynatan bahis siteleri arasındaki avantajlı teklifleri değerlendirin.</p>
     <a class="reference-link" href="https://cutt.ly/frqiVTb5" target="_blank">🌟 TIKLA VE BONUS AL</a> 
 </div>
+<h2>Reklam ve İletişim</h2>
+<p>Sizde Sitenizi Burada Görmek İstiyorsanız İletişim Telegram : <a href="https://t.me/sinangyf">@sinangyf</a></p>
